@@ -3,4 +3,4 @@ A whole collection of offline downloads for Eaglercraft, from Pre-Classic to 26.
 ## Play it like you love it!
 This is the funnest game collection EVER!!!
 
-\*Also see \[Funpak Ultra](https://poog-t-pig.itch.io/funpak-ultra)\.*\
+\*Also see [Funpak Ultra](https://poog-t-pig.itch.io/funpak-ultra)*
